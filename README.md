@@ -1,4 +1,1 @@
-
-![9f9qan0yg3y51](https://github.com/Anavalerianob/POO/assets/167941201/c24e4349-5491-476a-8a70-0c6c1982e8b7)
-
-
+![poo 2 versao got](https://github.com/user-attachments/assets/dbaf1739-e352-4fd3-9018-933018b5f519)
